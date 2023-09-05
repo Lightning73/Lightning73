@@ -1,5 +1,18 @@
-### Hi there 👋
+# I can't thing of a title
 
+## no inspiration
+
+*(but this is fun)*
+
+Do you try ?
+[Best game ever](https://genshin.hoyoverse.com/en/home)
+
+
+- 🔭 I’m currently working on : seriously, who cares ?
+- 🌱 I’m currently learning cybersecurity
+- 💬 Ask me about: nothing, you're probably better at it that i am
+- 📫 How to reach me: Genshin chat works perfectly
+- ⚡ Fun fact: I'm Batman (but it's a secret) 
 <!--
 **Lightning73/Lightning73** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
