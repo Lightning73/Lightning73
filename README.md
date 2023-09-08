@@ -19,5 +19,4 @@ Do you try ?
 - 📫 __How to reach me:__ Genshin chat works perfectly
 - ⚡ __Fun fact:__ I'm Batman (but it's a secret)
 
-![g]()
 
