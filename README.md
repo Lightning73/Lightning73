@@ -9,7 +9,7 @@
 ![genshin](https://malmal.fra1.digitaloceanspaces.com/userdata/profile-images/qn3JLg1r9CMVFlc2R3zU2JaWkmo2/profile-Zz3tXCPnFFMhHFW0jmhUY-original.png)
 
 Do you try ?
-[Second (but free) best game ever](https://genshin.hoyoverse.com/en/home) of course the first is [this](https://finalfantasyxv.square-enix-games.com/)
+[Second (but free) best game ever](https://genshin.hoyoverse.com/en/home). Of course the first is [this](https://finalfantasyxv.square-enix-games.com/)
 
 ## About me (if anyone cares about it) :
 
