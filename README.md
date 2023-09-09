@@ -10,7 +10,7 @@
 
 <div align="center">
 
-  ![genshin](https://malmal.fra1.digitaloceanspaces.com/userdata/profile-images/qn3JLg1r9CMVFlc2R3zU2JaWkmo2/profile-Zz3tXCPnFFMhHFW0jmhUY-original.png)
+  ![genshin](https://github.com/Lightning73/Images/blob/main/s.png)
   
 </div>
 
