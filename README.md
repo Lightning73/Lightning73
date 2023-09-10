@@ -21,7 +21,7 @@ Do you try ? [Second (but free) best game ever](https://genshin.hoyoverse.com/en
 ## About me (if anyone cares about it) :
 
 - 📝 __I’m currently working on :__ ~~the most boring story ever~~ the fascinating story of my life
-- 🌱 __I’m currently learn :__ cybersecurity (not particularly successfully, but I'm working on it too)
+- 🌱 __I’m currently learning :__ cybersecurity (not particularly successfully, but I'm working on it too)
 - 💬 __Ask me about:__ nothing, you're probably better at it that i am
 - 📬 __How to reach me:__ Genshin chat works perfectly
 - 👾 __Passions :__ Video games, animes, cosplay
