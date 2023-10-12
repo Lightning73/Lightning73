@@ -26,6 +26,7 @@ Do you try ? [Second (but free) best game ever](https://genshin.hoyoverse.com/en
 - 📬 __How to reach me:__ Genshin chat works perfectly
 - 👾 __Passions :__ Video games, animes, cosplay
 - 💎 __Fun fact:__ I'm Batman (but it's a secret)
+- 🧾 __Your next line will be :__Is that a Jojo reference ?
 - ⚡ __If I had to say one word :__ Bazinga !
 
 ## Inspirant citations:
