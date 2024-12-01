@@ -20,11 +20,11 @@ Do you try ? [Second (but free) best game ever](https://genshin.hoyoverse.com/en
 
 ## About me (if anyone cares about it) :
 
-- 📝 __I’m currently working on :__ ~~the most boring story ever~~ the fascinating story of my life
-- 🌱 __I’m currently learning :__ cybersecurity (not particularly successfully, but that's in progress)
-- 💬 __Ask me about:__ nothing, you're probably better at it that i am
+- 📝 __I’m currently working on :__ My studies because i'm going to become an engineer (can vent but not imp)
+- 🌱 __I’m currently learning :__ Skateboarding
+- 💬 __Ask me about:__ Where was Gondor when Westfold fell 
 - 📬 __How to reach me:__ Genshin chat works perfectly
-- 👾 __Passions :__ Video games, animes, cosplay
+- 👾 __Passions :__ Video games, cosplay, skateboard
 - 💎 __Fun fact:__ I'm Batman (but it's a secret)
 - 🧾 __Your next line will be :__ Is that a Jojo reference ?
 - ⚡ __If I had to say one word :__ Bazinga !
